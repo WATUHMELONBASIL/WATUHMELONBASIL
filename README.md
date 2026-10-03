@@ -1,4 +1,1 @@
-no longer using follow @photogenictulip (new)
-
-<img width="736" height="521" alt="fireoiny bfdi" src="https://github.com/user-attachments/assets/70ea5d69-b891-49d0-84b5-cd5479f8f6ed" />
-
+<img width="220" height="141" alt="omori-release-energy" src="https://github.com/user-attachments/assets/d7c9437f-5472-4efd-bf58-2b4f139d5a0a" />
