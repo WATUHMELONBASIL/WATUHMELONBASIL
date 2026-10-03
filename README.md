@@ -1,1 +1,1 @@
-<img width="196" height="200" alt="basil-spin-basil" src="https://github.com/user-attachments/assets/b1db9b0f-6ce9-4f58-baf5-0a3fba49e1bc" />
+<img width="736" height="773" alt="OMORI WEEZER" src="https://github.com/user-attachments/assets/874ba575-74ea-4ecc-94de-6ee03f5f848b" />
